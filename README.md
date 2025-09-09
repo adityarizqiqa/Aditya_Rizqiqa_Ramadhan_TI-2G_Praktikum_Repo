@@ -1,0 +1,1 @@
+# Aditya_Rizqiqa_Ramadhan_TI-2G_Praktikum_Repo
